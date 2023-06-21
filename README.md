@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TominagaHitomi.
+- 👀 I’m interested in music.
+- 🌱 I’m currently learning law.
